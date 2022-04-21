@@ -1,5 +1,5 @@
    <p align="center"> 
-  <img src="https://telegra.ph/file/773a8cc8877d74c99476c.jpg" alt="KUNJAPPAN PSY"> </p> 
+  <img src="https://telegra.ph/file/e3ffd0efb24f779d2830c.jpg" alt="KUNJAPPAN PSY"> </p> 
             My Name is PSY🙃  
 
           🔵###TG- @KING_OF_PSYCHO 🔵 
